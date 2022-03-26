@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AngelAdv
 - 👀 I’m interested in a lot of stuff
-- 🌱 I’m currently learning evrithing
+- 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on not yet
 - 📫 How to reach me idk
 
